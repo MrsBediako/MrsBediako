@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MrsBediako
-- 👀 I’m interested in Coding
+- 👀 I’m interested in sports & music
 - 🌱 I’m currently learning DevOps
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
